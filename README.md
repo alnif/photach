@@ -31,6 +31,7 @@ FAQ чата в телеграме - https://t.me/photo_geeks
 #### Загрузки
 
 - [Актуальные VSCO пресеты для Lightroom](https://www.dropbox.com/s/0v7xfaeoh2j96rj/VSCO%20LR%20PRESETS%201-6.7z?dl=0)
+- [Паттерны эффектов старой пленки для Photoshop](https://www.dropbox.com/sh/hlz8rmgpf85ygj8/AAA8CxTfLeui1UkL09kdZhKGa?dl=0)
 
 #### Ресурсы участников:
 
