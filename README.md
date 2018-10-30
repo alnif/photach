@@ -43,3 +43,4 @@ FAQ чата в телеграме - https://t.me/photo_geeks
 - Egor - [telegram](https://t.me/shik4r1) | [instagram](https://www.instagram.com/shik3/)
 - Мади - [telegram](https://t.me/m4cli) | [instagram](https://instagram.com/m4cli/)
 - Alex Snow - [telegram](https://t.me/snow_man_snow) | [instagram](https://www.instagram.com/nifontov_padawan/)
+- Quadra - [telegram](https://t.me/QuadraFreshness) | [instagram](https://instagram.com/pablitohyung)
