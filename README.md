@@ -3,6 +3,12 @@
 
 FAQ чата в телеграме - https://t.me/photo_geeks
 
+#### ВАЖНО
+
+Это моя камера. Таких камер много, но эта моя. Моя камера — мой лучший друг. Это — моя жизнь. Я должен научиться владеть камерой так же, как владею своей жизнью. Без меня моя камера бесполезна. Без моей камеры бесполезен я. Я должен метко попадать в фокус на моей камере. Я должен попадать точнее, чем бомбила, который пытается обогнать меня по съемкам. Я должен снять клиента до того, как бомбила снимет его. И я это сделаю. Клянусь перед богом. Я и моя камера — мы фотохудожники моей страны. Мы не боимся бомбил. Мы спасители искусства. Пусть будет так. Пока не останется больше бомбил и не наступит мир. Аминь.
+
+                                                                                                                    [isithoodie](https://t.me/isithoodie)
+
 
 #### Видео
 
@@ -42,5 +48,5 @@ FAQ чата в телеграме - https://t.me/photo_geeks
 - Linebrell - [telegram](https://t.me/Linebrell) | [flickr](https://www.flickr.com/photos/linebrell/)
 - Egor - [telegram](https://t.me/shik4r1) | [instagram](https://www.instagram.com/shik3/)
 - Мади - [telegram](https://t.me/m4cli) | [instagram](https://instagram.com/m4cli/)
-- Alex Snow - [telegram](https://t.me/snow_man_snow) | [instagram](https://www.instagram.com/nifontov_padawan/)
+- Alex Snow - [telegram](https://t.me/snow_man_snow) | [instagram](https://www.instagram.com/nifontov_padawan/) | [flickr](https://www.flickr.com/photos/alnif/) 
 - Quadra - [telegram](https://t.me/QuadraFreshness) | [instagram](https://instagram.com/pablitohyung)
